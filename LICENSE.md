@@ -1,4 +1,4 @@
-#  
+#  instant Notion for macOS Automation | custom shortcuts + real-time editing is the best Notion for macOS automation, featuring custom shortcuts and real-time editing. Safe,
 
 
 
